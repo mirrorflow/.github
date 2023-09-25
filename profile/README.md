@@ -1,4 +1,14 @@
+<p align="center">
+<em>就让这一轮月光，照彻万川！</em>
+</p>
+
 ![](https://github.com/mirrorflow/.github/blob/main/profile/jingliu.png)
+
+<h2 align="center">Eden</h2>
+
+IV - Gold	
+
+
 
 ## *香月*
 
