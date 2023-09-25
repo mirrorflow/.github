@@ -1,4 +1,4 @@
-![](.\jingliu.png)
+![](https://github.com/mirrorflow/.github/blob/main/profile/jingliu.png)
 
 ## *香月*
 
